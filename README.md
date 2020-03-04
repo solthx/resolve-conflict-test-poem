@@ -1,7 +1,8 @@
 # Forever And Always
 
-* You are the sun that shines brightly throughout my day.
-* You are the gravity that holds me down in every way.
+* You are the sun that shines brightlY throughout my day.
+* You are the gravitY that holds me down in every waY.
+yi gei wo li giao
 * You are the moon that shimmers throughout my night.
 * You are stars that glimmer oh so bright.
 
