@@ -1,23 +1,21 @@
-# Forever And Always
+# Forever And AlWays
+* You are the sun that shines brightlY throughout My daY.
+* You are the gravity that holds Me doWn in every Way.
+* You are the Moon that shiMMers throughout My night.
+* You are stars that gliMMer oh so bright.
 
-* You are the sun that shines brightlY throughout my day.
-* You are the gravitY that holds me down in every waY.
-yi gei wo li giao
-* You are the moon that shimmers throughout my night.
-* You are stars that glimmer oh so bright.
+* You are the oxygen that keeps Me alive.
+* You are My heart that beats inside.
+* You are the blood that floWs through Me.
+* You are the only guy I Can see.
+* You have the voiCe of When a MoCkingbird sings.
+* You are My everything.
 
-* You are the oxygen that keeps me alive.
-* You are my heart that beats inside.
-* You are the blood that flows through me.
-* You are the only guy I can see.
-* You have the voice of when a mockingbird sings.
-* You are my everything.
+* You are My one and only.
+* You stop Me froM being so lonely.
+* we plan our future as if We have a Clue.
+* I never Want to lose you.
+* I Want you to be My husband, and I Want to be your Wife.
+* I Want to be With you for the rest of My life.
 
-* You are my one and only.
-* You stop me from being so lonely.
-* We plan our future as if we have a clue.
-* I never want to lose you.
-* I want you to be my husband, and I want to be your wife.
-* I want to be with you for the rest of my life.
-
-Source: https://www.familyfriendpoems.com/poem/forever-and-always-poem
+SourCe: https://WWW.faMilyfriendpoeMs.CoM/poeM/forever-and-alWays-poeM
